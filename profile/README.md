@@ -26,24 +26,6 @@ We understand the complexity of the investment landscape. Therefore, we are dedi
 
 - **Unified Investment Hub**: Enjoy the convenience of a single point of access for all your investment needs, streamlining your financial journey.
 
-## 🌟 Getting Started
-
-### 1. Explore Our Fintech Solutions
-
-Discover the range of Fintech solutions and tools Al Hilal Technologies offers. From advanced investment platforms to personalized financial insights, we have everything you need to make informed and ethical investment decisions.
-
-### 2. Shariah Compliant Investing
-
-Explore our Shariah compliant investment options and learn how we integrate ethical principles into our investment strategies. Your financial goals can now align seamlessly with your values.
-
-### 3. Unified Investment Experience
-
-Experience the ease of managing all your investments in one place. Our unified investment hub is designed to provide you with a hassle-free and comprehensive view of your financial portfolio.
-
-## 🤝 Join the Financial Revolution
-
-Be part of the financial revolution with Al Hilal Technologies. Join a community that values ethical investing, technological innovation, and a unified approach to financial success.
-
 ## 📞 Contact Us
 
 If you have any questions, suggestions, or simply want to connect, feel free to reach out to our dedicated support team. Your financial success is our priority, and we're here to assist you every step of the way.
